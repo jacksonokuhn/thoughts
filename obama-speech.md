@@ -14,5 +14,5 @@ Conservatives, for their part, understand very well the stakes of politics. They
 
 From the speech: "If you don't like what's going on ... Do not complain. Don't hashtag. Don't get anxious. Don't retreat. Don't binge on whatever it is you're binging on. Don't lose yourself in ironic detachment. Don't put your head in the sand. Don't boo. Vote. Vote." I guess I'm asking you to imagine a future where instead of “vote” — such an anemic, condescending demand, and one so clearly mediated by a vast, almost unbridgeable difference in political agency — we said to one another “organize (and I’ll help figure out childcare at the meetings).”
 
-Also <a href="https://locusmag.com/2018/09/cory-doctorow-big-tech-we-can-do-better-than-constitutional-monarchies/
-">this Cory Doctorow essay</a> in Locus feels super relevant to what I'm saying here. It's definitely worth a read.
+Also, this Cory Doctorow <a href="https://locusmag.com/2018/09/cory-doctorow-big-tech-we-can-do-better-than-constitutional-monarchies/
+">essay</a> in Locus feels super relevant to what I'm saying here. It's definitely worth a read.
